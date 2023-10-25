@@ -1,4 +1,4 @@
-Hi, I’m @robert1ridley. I’m currently a PhD student at the Artificial Intelligence Institure at Nanjing University. I’m looking to collaborate on any interesting projects.
+Hi, I’m @robert1ridley. I’m currently a PhD student at the Artificial Intelligence Institute at Nanjing University. I’m looking to collaborate on any interesting projects.
 You can reach me at robert.n.ridley@gmail.com.
 
 <!---
